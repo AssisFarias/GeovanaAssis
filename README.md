@@ -4,4 +4,3 @@
 
 - :leaves: meu nome é Geovana :guitar::zap:
 - estou aqui para estudar 📖
-- 
